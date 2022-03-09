@@ -1,4 +1,4 @@
-I can not reveale the university. However , I captured the project in the file "project reveale".
+I can not reveale the university.
 
 
 # Step 1 :
